@@ -25,3 +25,5 @@ Growing up, I'm no stranger to Hispanic foods. Over the years, my family and I i
 5. When ready to grill, let steak sit out to reach room temperature (roughly 30 minutes).
 6. Using a flat iron, place heat on high and cook steak for 15 minutes or until caramelized.
 7. Serve sliced steak on tortillas and add lime, cilantro, and onion at your disposal.
+
+Click [here](http://allrecipes.com) to check out other great recipes.
